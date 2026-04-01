@@ -1,0 +1,22 @@
+# Action Verbs
+
+- reblogging
+- cropping
+- deep-frying
+- glittering
+- stamping
+- cascading
+- scrolling
+- buffering
+- stuttering
+- smearing
+- looping
+- replying
+- stacking
+- tiling
+- tagging
+- reposting
+- annotating
+- customizing
+- ghosting
+- archiving
